@@ -9,3 +9,11 @@ sb_snailmail.exe
 
 So long, and thanks for all the fish
 So sad it had to come to this
+We tried to warn you all, but oh dear~
+
+You may not share our intellect
+Which may explain your disrespect
+For all the natural wonders that grow around you~
+So long, so long and thanks, for all the fish.
+
+-Hitchhiker's Guide to the Galaxy
