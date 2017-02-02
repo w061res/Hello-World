@@ -16,4 +16,12 @@ Which may explain your disrespect
 For all the natural wonders that grow around you~
 So long, so long and thanks, for all the fish.
 
--Hitchhiker's Guide to the Galaxy
+If I could have one last wish, I would like a tasty fish
+If I could have one last thing, I would like some lungs to sing.
+Come, one and all
+Man, and mammal
+Side, by side in life's great gene pool!
+
+So long, so long, so long, so long,
+So long, so long, so long, so long,
+So long, so long and thanks, for all the fish!
